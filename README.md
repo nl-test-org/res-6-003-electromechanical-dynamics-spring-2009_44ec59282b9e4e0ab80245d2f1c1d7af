@@ -1,0 +1,1 @@
+# res-6-003-electromechanical-dynamics-spring-2009_44ec59282b9e4e0ab80245d2f1c1d7af
